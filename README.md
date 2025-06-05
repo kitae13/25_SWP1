@@ -1,1 +1,1 @@
-2025 bankitae
+20252390 Ban Kitae
